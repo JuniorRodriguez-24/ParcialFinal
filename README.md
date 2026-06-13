@@ -1,3 +1,3 @@
 **Integrantes:**
 Jeffrey Rodríguez
-Ubaldo Rodriguez
+Ubaldo Rodríguez
